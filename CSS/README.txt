@@ -1,0 +1,1 @@
+Moras procitat inace izgubis sve.
